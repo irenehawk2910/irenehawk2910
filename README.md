@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @irenehawk2910
-- 👀 I’m interested in ... Economics and progra
+- 👀 I’m interested in ... Economics and programming
 - 🌱 I’m currently learning to use Matlab
 - 📫 How to reach me ... irene_hawk2910 su IG
 
